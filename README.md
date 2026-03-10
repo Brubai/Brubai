@@ -28,7 +28,7 @@ Actualmente curso mi carrera en la **Facultad de Ciencias Exactas, Físicas y Na
 - Por qué el **arroz con leche** es el mejor postre del mundo. 🍚
 
 ## 📫 Cómo contactarme:
-- **LinkedIn:** [Tu Perfil Aquí]
-- **Email:** [Tu Email Aquí]
+- **LinkedIn:** [próximamente]
+- **Email:** [brubai2002@gmail.com]
 
 ---
